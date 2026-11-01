@@ -74,4 +74,4 @@ Download `Openvision_Profitability_Analysis.xlsx` and open it in Excel for Micro
 
 Chivu Andrei Ciprian – Bachelor's degree in Business Administration (FABIZ, ASE Bucharest)
 
-[LinkedIn](https://www.linkedin.com/in/ciprian-chivu-8140593b3/)
+[LinkedIn](https://www.linkedin.com/in/ciprian-andrei-chivu/)
